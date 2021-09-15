@@ -4,6 +4,9 @@
 Professional logo design for social media and general use
 
 ![derbederprojelogo](https://user-images.githubusercontent.com/86148392/133499630-758284d5-552b-4eb4-9f16-5eba27904627.png)
+Social media account that I designed: https://www.instagram.com/derbeder1motorcu/
 
 Please do not use my design for malicious purposes.
 Don't sell money to other people as if it's your own product.
+
+
